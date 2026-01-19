@@ -74,7 +74,7 @@ I focus on **clean code, strong fundamentals, and problem-solving**, not just fr
 ## 📫 Connect With Me  
 
 - 💼 LinkedIn: https://www.linkedin.com/in/saad-mujawar-a576b3326/
-- 📧 Email: your-saadmujawar2667@gmail.com  
+- 📧 Email: saadmujawar2667@gmail.com  
 
 ---
 
